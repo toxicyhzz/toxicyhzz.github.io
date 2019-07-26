@@ -10,6 +10,7 @@
 2.对于身边的家人、朋友，我真的爱过吗？
 3.我真的过得有意义吗？
 
+<img src="http://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E5%9B%BE%E7%89%87&step_word=&hs=0&pn=18&spn=0&di=78430&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&istype=0&ie=utf-8&oe=utf-8&in=&cl=2&lm=-1&st=undefined&cs=2555204911%2C3508488420&os=362583691%2C384070190&simid=4182199639%2C819132822&adpicid=0&lpn=0&ln=741&fr=&fmq=1564116431179_R&fm=&ic=undefined&s=undefined&hd=undefined&latest=undefined&copyright=undefined&se=&sme=&tab=0&width=undefined&height=undefined&face=undefined&ist=&jit=&cg=&bdtype=0&oriquery=&objurl=http%3A%2F%2Fimg.redocn.com%2Fsheying%2F20150604%2Fbaiseyanwubeijing_4459714.jpg&fromurl=ippr_z2C%24qAzdH3FAzdH3Fooo_z%26e3B6j15vg_z%26e3Bv54AzdH3Fkjt3tg2_99cl089_z%26e3Bip4s&gsm=0&rpstart=0&rpnum=0&islist=&querylist=&force=undefined.jpg"alt>
 <h3>工作经历</h3>
 
 <p>人生总是被太多的人和事牵绊，这7年到底做了什么？</p>
